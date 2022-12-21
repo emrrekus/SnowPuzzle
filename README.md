@@ -6,4 +6,4 @@ Purpolexia gezeginindeki yaşam formları yok olmakla karşı karşıyadır. Bu 
 Story & Aim:
 Dear home planet Purpolexia is on the brink of extinction. You need to save Purpolexie. Travel and explore other planets and bring back life sources. Place them in their respective monoliths and watch the planet come to life.
 
-Gameplay 
+Gameplay  : https://www.youtube.com/watch?v=_eDP2uLWSQw&t=284s
